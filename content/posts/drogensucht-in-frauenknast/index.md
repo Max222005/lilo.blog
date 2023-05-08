@@ -47,6 +47,12 @@ Irene Aebi empfängt uns am Eingang zum Areal der JVA. Sie ist diplomierte Pfleg
 
 
 
+
+
+
+
+
+
 > ###  *«Die Insassinnen können zu mir Vertrauen aufbauen, das ist sehr wichtig für meine Arbeit»*
 
 Eine wichtige Aufgabe der Präventionsaufgabe besteht in der Begleitung der Frauen. Diese können mit Frau Aebi über alles sprechen, für sie gilt gegenüber der Direktion und allen offiziellen Stellen eine klare Pflicht zur Geheimhaltung der Gespräche. Sie darf weder den Inhalt weitererzählen noch ein Protokoll führen. Es gibt nur eine Ausnahme, wenn die Insassinnen ihr von Körperverletzungen erzählen. «Die Insassinnen können zu mir Vertrauen aufbauen, das ist sehr wichtig für meine Arbeit» betont Frau Aebi. Sie begleitet auch Frauen, die von ihr ein Spritzenset wollen und klärt sie über die Regeln die damit verbunden sind auf. Sie sagt: «Die Insassinnen müssen zuerst mit mir ein persönliches Gespräch führen, bei dem ich sie darüber aufkläre, was die Risiken sind und was passiert, wenn sie die Regeln nicht einhalten und das Spritzenset nicht regelkonform aufbewahren». Halten sich die Frauen nicht an diese Regeln, so droht eine Strafe, sie kommen in den sogenannten Bunker. Dies ist eine Zelle, in welcher sich die Frauen in Einzelhaft befinden und von allen Insassinnen gefürchtet ist. Die soziale Isolation ist eine der härtesten Strafen für die Frauen, erzählt eine Betreuerin. Doch wieso werden den Frauen Spritzen angeboten, da doch der Drogenkonsum in Gefängnissen per Gesetz verboten ist. Frau Aebi ist sich diesem Widerspruch sehr wohl bewusst. Da es für Gefangene nicht einfach ist, von einem Moment auf den anderen mit Ihrer Sucht aufzuhören, bekommen sie im Gefängnis eine Substitution. Das bedeutet einen Ersatz, beispielsweise Methadon. Trotz diesem Ersatz werden aber auch andere Drogen konsumiert, welche reingeschmuggelt werden.  
