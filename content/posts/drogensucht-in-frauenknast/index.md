@@ -35,6 +35,8 @@ Personen in Haft müssen den gleichen Zugang zur Gesundheitsversorgung haben wie
 
 {{<box>}}
 
+**SWMA**
+
 Die SAMW engagiert sich als Brückenbauerin zwischen Wissenschaft und Gesellschaft. Obwohl die als privatrechtlicher Verein organisiert ist, haben ihre Leitlinien gewichtigen Einfluss. Standesorganisationen wie die FMH (Schweizer Aerztevereinigung) , der SBK (Schweizerischer Berufsverband der Krankenpflege) wie auch das Bundesgericht stützen sich auf diese Richtlinien ab. Die SAMW hat eigene Leitlinien zur «Medizin im Straf- und Massnahmenvollzug» erarbeitet.
 
 {{</box>}}
@@ -44,14 +46,6 @@ Somit ist klar, dass auch Inhaftierte Zugang zu Prävention haben müssen. 1987 
 ![Irene Aebi Präventionsarbeiterin in der JVA Hindelbank](c9f8a666-be69-43c9-aa8f-6b328f3687c5.jpeg)
 
 Irene Aebi empfängt uns am Eingang zum Areal der JVA. Sie ist diplomierte Pflegefachfrau und arbeitet seit 5 Jahren in Hindelbank. Frau Aebi erzählt von den Anfängen des Projektes: «Als die Idee eines Spritzenautomaten und der Abgabe von Spritzensets an Süchtige aufkam, war die Angst gross, dass die Spritzen als Waffe gegen Mitgefangene oder Betreuer:innen verwendet werden könnten.» Frau Aebi ist es wichtig zu betonen, dass dies noch nie vorgekommen ist.
-
-
-
-
-
-
-
-
 
 > ####  *«Die Insassinnen können zu mir Vertrauen aufbauen, das ist sehr wichtig für meine Arbeit»*
 
